@@ -5,4 +5,5 @@ Our services are as follows:
 - Twists
 - Natural Hair Care
 - Styling
+- Silk Press
 
